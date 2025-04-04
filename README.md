@@ -1,5 +1,8 @@
-# WallpapersXP2K
+# Wallpapers XP2K
 Обои рабочего стола Windows XP в 2K качестве
+Windows XP Desktop Wallpapers in 2K Quality
+
+
 ![image](https://github.com/user-attachments/assets/69424457-928a-413b-8a8a-4d8509f26702)
 
 
